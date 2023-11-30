@@ -8,4 +8,4 @@ Saya sekarang sedang menempuh pendidikan S1 di UIN Syarif Hidayatullah Jakarta, 
 
 Saya juga memiliki *skill* di bidang *data science* dan *machine learning*, selain itu saya merupakan alumni program **Bangkit Academy 2023 Batch 1** dengan alur belajar *machine learning*.<br>
 
-Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](www.linkedin.com/in/dirzy-adam-b2574a250/) ku ya.
+Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://id.linkedin.com/in/dirzy-adam-b2574a250) ku ya.
